@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @ArmanTahsinAdib
+- 👋 Hi, I’m Arman Tahsin Adib
 
